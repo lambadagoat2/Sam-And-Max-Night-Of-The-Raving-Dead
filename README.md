@@ -214,4 +214,4 @@ Sam & Max: Night of the Raving Dead is provided as a complete free version with 
 Don't miss out on this opportunity! **Download Sam & Max: Night of the Raving Dead FREE** today and join the adventure now!
 
 ---
-**Last updated:** 2026-10-17 22:06:58 UTC
+**Last updated:** 2026-10-18 00:47:00 UTC
